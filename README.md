@@ -1,0 +1,2 @@
+# premium-gratitude-journal-001-gratitude-journal-mindfulnes
+Tired of gratitude journals that gather dust after three days? This Notion template turns your phone into a daily mindfulness habit that actually sticks — with instant tracking, zero setup, and a built-in progress dashboard.  Most gratitude products feel like chores — this one feels like a game. The Gratitude Journal &amp; Mindfulness Tracker combines
